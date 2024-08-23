@@ -1,1 +1,1 @@
-# Tactical Options Trading
+# Tactical Options Trading 📈
